@@ -1,4 +1,4 @@
-## gamezzz
+## Games!
 
 i'm updating this repository semi-actively
 
